@@ -1,2 +1,7 @@
 # home-type-shit
-this si what i work on at home
+still tryna learn github lmao
+
+# what is it
+
+this is what i can work on when im board at home
+
